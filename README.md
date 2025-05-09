@@ -48,7 +48,7 @@
 ![image](https://github.com/user-attachments/assets/9935877e-c0a1-4c03-8ea8-b50ad19337b8)
 
 
-### Name: Duraiarasan A S
+### Name: Duraiarasan M
 ### Register Number:  212224230071
 
 ## RESULT:
